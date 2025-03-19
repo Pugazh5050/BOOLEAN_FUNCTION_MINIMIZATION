@@ -1,4 +1,4 @@
-### NAME : PUgazhalenthi V
+### NAME : Pugazhalenthi V
 
 ### REG NO : 212224100047
 
